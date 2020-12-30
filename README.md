@@ -1,0 +1,1 @@
+My recipe is a non veg snak called chicken tandoori. It contains a large amount of herbs and masalas. This recipe is also rich in protien and very delicious also. With a green chutney and small onions it tastes like heaven. So lets starte with the ingrediants.
